@@ -1,6 +1,6 @@
 # Legal Notice and Distribution Position
 
-**Project:** Viking Code Mystic Engineering CLI 
+**Project:** The Heathen Third Path and The Cyber-Viking Ethos 
 
 **Author:** Volmarr Wyrd
 
