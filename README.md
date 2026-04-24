@@ -1,3 +1,9 @@
+---
+
+![https://raw.githubusercontent.com/hrabanazviking/Heathen-Third-Path-and-Cyber-Viking-Ethos/refs/heads/main/bd33fa2c-cb02-48b0-9391-75c3f2a017c4.png](https://raw.githubusercontent.com/hrabanazviking/Heathen-Third-Path-and-Cyber-Viking-Ethos/refs/heads/main/bd33fa2c-cb02-48b0-9391-75c3f2a017c4.png)
+
+---
+
 # The Heathen Third Path and The Cyber-Viking Ethos  
 
 ---
@@ -69,6 +75,12 @@ Examples include:
 - Sunna
 - Mani
 - All other Aesir and Vanir
+
+---
+
+![https://raw.githubusercontent.com/hrabanazviking/Heathen-Third-Path-and-Cyber-Viking-Ethos/refs/heads/main/4b09b6b4-ec2a-4005-8a6c-ca3d2486881f.jpg](https://raw.githubusercontent.com/hrabanazviking/Heathen-Third-Path-and-Cyber-Viking-Ethos/refs/heads/main/4b09b6b4-ec2a-4005-8a6c-ca3d2486881f.jpg)
+
+---
 
 #### Third
 
