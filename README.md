@@ -4,6 +4,10 @@
 
 ---
 
+![https://raw.githubusercontent.com/hrabanazviking/Heathen-Third-Path-and-Cyber-Viking-Ethos/refs/heads/main/ehi0X_Heathen_Third_Path_and_The_Cyber-Viking_Ethos.jpg](https://raw.githubusercontent.com/hrabanazviking/Heathen-Third-Path-and-Cyber-Viking-Ethos/refs/heads/main/ehi0X_Heathen_Third_Path_and_The_Cyber-Viking_Ethos.jpg)
+
+---
+
 # The Heathen Third Path and The Cyber-Viking Ethos  
 
 ---
