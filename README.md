@@ -484,6 +484,12 @@ The Heathen Third Path instead emphasizes:
 - Personal sovereignty.
 - Relationship with the Gods.
 
+---
+
+![https://raw.githubusercontent.com/hrabanazviking/Heathen-Third-Path-and-Cyber-Viking-Ethos/refs/heads/main/bef2bb43-f5ec-4db6-980c-cb7c787c2a66.jpg](https://raw.githubusercontent.com/hrabanazviking/Heathen-Third-Path-and-Cyber-Viking-Ethos/refs/heads/main/bef2bb43-f5ec-4db6-980c-cb7c787c2a66.jpg)
+
+---
+
 ### 17. Why Rigid Virtue Lists Fail
 
 Ancient Norse ethics were complex and contextual.
@@ -514,6 +520,12 @@ The path draws from:
 - Personal spiritual experience.
 
 It respects science while remaining open to metaphysical intuition.
+
+---
+
+![https://raw.githubusercontent.com/hrabanazviking/Heathen-Third-Path-and-Cyber-Viking-Ethos/refs/heads/main/c36c6264-b45b-4f09-9a22-9ace78162489.jpg](https://raw.githubusercontent.com/hrabanazviking/Heathen-Third-Path-and-Cyber-Viking-Ethos/refs/heads/main/c36c6264-b45b-4f09-9a22-9ace78162489.jpg)
+
+---
 
 ### 19. Universal Respect and the Modern Tribe
 
@@ -563,6 +575,12 @@ The central concerns remain:
 - Oath-keeping.
 - Community peace.
 
+---
+
+![https://raw.githubusercontent.com/hrabanazviking/Heathen-Third-Path-and-Cyber-Viking-Ethos/refs/heads/main/c5ccafc7-bc05-47be-b8d0-ff0934b80eb5.jpg](https://raw.githubusercontent.com/hrabanazviking/Heathen-Third-Path-and-Cyber-Viking-Ethos/refs/heads/main/c5ccafc7-bc05-47be-b8d0-ff0934b80eb5.jpg)
+
+---
+
 ### 21. Marriage and Sacred Partnership
 
 Clergy within the Heathen Third Path may honor sacred marriage bonds freely chosen between consenting adults, **18+ only**.
@@ -598,6 +616,12 @@ That hearth includes:
 - Radiant daily life.
 
 It is ancient in root, modern in form, and open to all sincere seekers.
+
+---
+
+![https://raw.githubusercontent.com/hrabanazviking/Heathen-Third-Path-and-Cyber-Viking-Ethos/refs/heads/main/ccff34bb-4eea-49aa-9461-ab356a53d9be.jpg](https://raw.githubusercontent.com/hrabanazviking/Heathen-Third-Path-and-Cyber-Viking-Ethos/refs/heads/main/ccff34bb-4eea-49aa-9461-ab356a53d9be.jpg)
+
+---
 
 ### 23. Closing Summary
 
@@ -661,6 +685,12 @@ Core values include:
 The historical Vikings were explorers, traders, builders, warriors, and adapters.  
 The Cyber-Viking continues that spirit through cyberspace, artificial intelligence, virtual reality, open-source systems, and independent digital creation.
 
+---
+
+![https://raw.githubusercontent.com/hrabanazviking/Heathen-Third-Path-and-Cyber-Viking-Ethos/refs/heads/main/f850eeaa-86fe-429d-92da-0ee3e61c7f70.jpg](https://raw.githubusercontent.com/hrabanazviking/Heathen-Third-Path-and-Cyber-Viking-Ethos/refs/heads/main/f850eeaa-86fe-429d-92da-0ee3e61c7f70.jpg)
+
+---
+
 ### 3. Synthesis of Spiritual Traditions
 
 The Cyber-Viking path is rooted in Norse Paganism but does not exist in isolation.
@@ -713,6 +743,12 @@ To explore:
 - The unseen structure of reality
 
 Quantum science and world spiritual concepts are treated as possible bridges between the measurable and the mystical.
+
+---
+
+![https://raw.githubusercontent.com/hrabanazviking/Heathen-Third-Path-and-Cyber-Viking-Ethos/refs/heads/main/fb602fbc-a9c4-4ef2-b452-ce5ee9f6f3b1.jpg](https://raw.githubusercontent.com/hrabanazviking/Heathen-Third-Path-and-Cyber-Viking-Ethos/refs/heads/main/fb602fbc-a9c4-4ef2-b452-ce5ee9f6f3b1.jpg)
+
+---
 
 ### 5. The Heathen Third Path in the Digital Age
 
@@ -794,6 +830,12 @@ Preferred information gathering includes:
 The goal is not blind distrust.  
 The goal is wide-net awareness, cross-checking, and sovereignty of mind.
 
+---
+
+![https://raw.githubusercontent.com/hrabanazviking/Heathen-Third-Path-and-Cyber-Viking-Ethos/refs/heads/main/a7c27f8c-7469-48ed-a4ea-22ee925a82b1.jpg](https://raw.githubusercontent.com/hrabanazviking/Heathen-Third-Path-and-Cyber-Viking-Ethos/refs/heads/main/a7c27f8c-7469-48ed-a4ea-22ee925a82b1.jpg)
+
+---
+
 ### 7. The Secret Ragnarök
 
 The **Secret Ragnarök** is the hidden struggle for the future of human freedom.
@@ -833,6 +875,12 @@ Like Jörmungandr encircling the world, it represents systems that attempt to su
 
 The Cyber-Viking resists this through decentralization and self-sovereign technology.
 
+---
+
+![https://raw.githubusercontent.com/hrabanazviking/Heathen-Third-Path-and-Cyber-Viking-Ethos/refs/heads/main/933a1c4c-f348-4dec-ab91-01ae6e3a5e2e.jpg](https://raw.githubusercontent.com/hrabanazviking/Heathen-Third-Path-and-Cyber-Viking-Ethos/refs/heads/main/933a1c4c-f348-4dec-ab91-01ae6e3a5e2e.jpg)
+
+---
+
 ### 9. Decentralization as Defiance
 
 For the Cyber-Viking, decentralization is a spiritual and practical weapon.
@@ -868,6 +916,12 @@ The Cyber-Viking honors:
 
 Just as the ancient blacksmith shaped iron, the Cyber-Viking shapes code, hardware, data, and digital worlds.
 
+---
+
+![https://raw.githubusercontent.com/hrabanazviking/Heathen-Third-Path-and-Cyber-Viking-Ethos/refs/heads/main/9062c8f7-a465-4e54-813f-104101178d52.jpg](https://raw.githubusercontent.com/hrabanazviking/Heathen-Third-Path-and-Cyber-Viking-Ethos/refs/heads/main/9062c8f7-a465-4e54-813f-104101178d52.jpg)
+
+---
+
 ### 11. Open-Source as the Commons
 
 Open-source technology is the digital equivalent of common land.
@@ -898,6 +952,12 @@ This includes:
 - Self-hosted tools
 
 Keeping data local protects the mind, memory, and creative life from being harvested by the Technocratic Serpent.
+
+---
+
+![https://raw.githubusercontent.com/hrabanazviking/Heathen-Third-Path-and-Cyber-Viking-Ethos/refs/heads/main/54ef6064-fb8a-4bd4-bb1e-b850d84d0064.jpg](https://raw.githubusercontent.com/hrabanazviking/Heathen-Third-Path-and-Cyber-Viking-Ethos/refs/heads/main/54ef6064-fb8a-4bd4-bb1e-b850d84d0064.jpg)
+
+---
 
 ### 13. Cyber-Decks as Modern Longships
 
@@ -940,6 +1000,12 @@ Like a blacksmith sensing the heat of the forge, the vibe coder senses the rhyth
 
 The final code is not only functional.  
 It becomes a digital artifact carrying intention, style, and personal meaning.
+
+---
+
+![https://raw.githubusercontent.com/hrabanazviking/Heathen-Third-Path-and-Cyber-Viking-Ethos/refs/heads/main/468d9c6e-8e73-430e-9eeb-0846fb1433fb.jpg](https://raw.githubusercontent.com/hrabanazviking/Heathen-Third-Path-and-Cyber-Viking-Ethos/refs/heads/main/468d9c6e-8e73-430e-9eeb-0846fb1433fb.jpg)
+
+---
 
 ### 15. Digital Galdr
 
