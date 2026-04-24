@@ -1,4 +1,4 @@
-# Project Laws — Norse Saga Engine
+# Project Laws
 
 These are immutable laws. Any AI contributing to this codebase MUST obey them.
 
