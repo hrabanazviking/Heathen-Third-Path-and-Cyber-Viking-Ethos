@@ -114,6 +114,12 @@ Its model is inspired by the **Norns**:
 
 The past, present, and future are woven together through Wyrd.
 
+---
+
+![https://raw.githubusercontent.com/hrabanazviking/Heathen-Third-Path-and-Cyber-Viking-Ethos/refs/heads/main/014195b0-bb65-4550-8a64-549491f5446b.jpg](https://raw.githubusercontent.com/hrabanazviking/Heathen-Third-Path-and-Cyber-Viking-Ethos/refs/heads/main/014195b0-bb65-4550-8a64-549491f5446b.jpg)
+
+---
+
 #### Path
 
 “Path” means this is a lived practice, not merely a belief system.
@@ -187,6 +193,12 @@ Basic structure:
 
 Start small, even three times a week.
 
+---
+
+![https://raw.githubusercontent.com/hrabanazviking/Heathen-Third-Path-and-Cyber-Viking-Ethos/refs/heads/main/32ebfc11-ba66-43fa-9a3c-a63495c862d7.jpg](https://raw.githubusercontent.com/hrabanazviking/Heathen-Third-Path-and-Cyber-Viking-Ethos/refs/heads/main/32ebfc11-ba66-43fa-9a3c-a63495c862d7.jpg)
+
+---
+
 ### 5. Rune Work
 
 Runes are approached as tools for:
@@ -255,6 +267,12 @@ Examples:
 
 Sacred space can be a forest, bedroom, balcony, kitchen, rooftop, or altar shelf.
 
+---
+
+![https://raw.githubusercontent.com/hrabanazviking/Heathen-Third-Path-and-Cyber-Viking-Ethos/refs/heads/main/44fb9653-8085-4644-86ef-3951981d7467.jpg](https://raw.githubusercontent.com/hrabanazviking/Heathen-Third-Path-and-Cyber-Viking-Ethos/refs/heads/main/44fb9653-8085-4644-86ef-3951981d7467.jpg)
+
+---
+
 ### 7. Hymns and Galdr
 
 Words have spiritual force. Spoken or sung, they shape the mind and deepen ritual.
@@ -301,6 +319,12 @@ It may use:
 - Kinship through shared words and deeds.
 - No pressure, coercion, or ideological purity tests.
 
+---
+
+![https://raw.githubusercontent.com/hrabanazviking/Heathen-Third-Path-and-Cyber-Viking-Ethos/refs/heads/main/a2c60f79-f404-4676-9af2-5689b93aa861.jpg](https://raw.githubusercontent.com/hrabanazviking/Heathen-Third-Path-and-Cyber-Viking-Ethos/refs/heads/main/a2c60f79-f404-4676-9af2-5689b93aa861.jpg)
+
+---
+
 ### 9. Trauma-Aware Practice
 
 Ritual should never cause harm.
@@ -330,6 +354,12 @@ A rune such as Eihwaz can help frame grief, endurance, death, memory, and contin
 #### Third Path Peace
 
 In conflict, shared song, silence, hospitality, and frith can restore unity without erasing difference.
+
+---
+
+![https://raw.githubusercontent.com/hrabanazviking/Heathen-Third-Path-and-Cyber-Viking-Ethos/refs/heads/main/bfd97053-73a4-478d-be7e-5738154da197.jpg](https://raw.githubusercontent.com/hrabanazviking/Heathen-Third-Path-and-Cyber-Viking-Ethos/refs/heads/main/bfd97053-73a4-478d-be7e-5738154da197.jpg)
+
+---
 
 ### 11. The Hávamál as Ethical Compass
 
@@ -375,6 +405,12 @@ A practitioner should:
 
 This is not cold detachment. It is mental sovereignty.
 
+---
+
+![https://raw.githubusercontent.com/hrabanazviking/Heathen-Third-Path-and-Cyber-Viking-Ethos/refs/heads/main/dd14d194-8579-4dfa-be61-d6469c080bda.jpg](https://raw.githubusercontent.com/hrabanazviking/Heathen-Third-Path-and-Cyber-Viking-Ethos/refs/heads/main/dd14d194-8579-4dfa-be61-d6469c080bda.jpg)
+
+---
+
 ### 13. Hospitality as Neutral Ground
 
 The hearth is a sacred space of frith.
@@ -405,6 +441,12 @@ The Heathen Third Path applies this as a principle of balance:
 - Wise, but not arrogant.
 - Strong, but not cruel.
 - Free, but not reckless.
+
+---
+
+![https://raw.githubusercontent.com/hrabanazviking/Heathen-Third-Path-and-Cyber-Viking-Ethos/refs/heads/main/ee6b4803-4386-4805-9b73-d8539bb23c83.jpg](https://raw.githubusercontent.com/hrabanazviking/Heathen-Third-Path-and-Cyber-Viking-Ethos/refs/heads/main/ee6b4803-4386-4805-9b73-d8539bb23c83.jpg)
+
+---
 
 ### 15. Rejection of the Nine Noble Virtues
 
