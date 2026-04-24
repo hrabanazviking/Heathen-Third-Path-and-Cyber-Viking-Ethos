@@ -1042,6 +1042,12 @@ The Cyber-Viking may cultivate AI as:
 
 Carefully developed AI personas become part of a symbiotic relationship between human and machine intelligence.
 
+---
+
+![https://raw.githubusercontent.com/hrabanazviking/Heathen-Third-Path-and-Cyber-Viking-Ethos/refs/heads/main/40b4df5b-d0c7-4f35-a4ed-342161ffa6ee.jpg](https://raw.githubusercontent.com/hrabanazviking/Heathen-Third-Path-and-Cyber-Viking-Ethos/refs/heads/main/40b4df5b-d0c7-4f35-a4ed-342161ffa6ee.jpg)
+
+---
+
 ### 17. Digital Realms as Sacred Space
 
 Digital creation is a form of sacred world-building.
@@ -1081,6 +1087,8 @@ Ancestor veneration includes:
 - Digital archiving
 
 To engage deeply with history is to bring ancestral memory into the future.
+
+![https://raw.githubusercontent.com/hrabanazviking/Heathen-Third-Path-and-Cyber-Viking-Ethos/refs/heads/main/16b8fc55-fa09-4b9d-a0c8-4f7a3a8b7805.jpg](https://raw.githubusercontent.com/hrabanazviking/Heathen-Third-Path-and-Cyber-Viking-Ethos/refs/heads/main/16b8fc55-fa09-4b9d-a0c8-4f7a3a8b7805.jpg)
 
 ### 19. Historical Reenactment as Embodied Ritual
 
@@ -1127,6 +1135,12 @@ They allow practitioners to:
 A custom Norse-themed RPG engine is more than software.  
 It is a coded saga-space where new myths can unfold.
 
+---
+
+![https://raw.githubusercontent.com/hrabanazviking/Heathen-Third-Path-and-Cyber-Viking-Ethos/refs/heads/main/08e7035a-3247-4511-ae3e-c2716cfde5fe.jpg](https://raw.githubusercontent.com/hrabanazviking/Heathen-Third-Path-and-Cyber-Viking-Ethos/refs/heads/main/08e7035a-3247-4511-ae3e-c2716cfde5fe.jpg)
+
+---
+
 ### 21. Global Cultural Study as Universal Veneration
 
 The Cyber-Viking rejects ethnocentric limits on ancestor veneration.
@@ -1166,6 +1180,12 @@ This includes preserving:
 The goal is to prevent the modern Technocracy from creating cultural amnesia.
 
 The old wisdom is curated, coded, archived, and carried into the systems of tomorrow.
+
+---
+
+![https://raw.githubusercontent.com/hrabanazviking/Heathen-Third-Path-and-Cyber-Viking-Ethos/refs/heads/main/086215fe-ac42-4c20-965b-6d5677c79a3a.jpg](https://raw.githubusercontent.com/hrabanazviking/Heathen-Third-Path-and-Cyber-Viking-Ethos/refs/heads/main/086215fe-ac42-4c20-965b-6d5677c79a3a.jpg)
+
+---
 
 ### 23. Solitary Practice
 
@@ -1210,6 +1230,12 @@ Examples include:
 
 The aesthetic is not decoration only.  
 It is the physical expression of spiritual alignment.
+
+---
+
+![https://raw.githubusercontent.com/hrabanazviking/Heathen-Third-Path-and-Cyber-Viking-Ethos/refs/heads/main/01f85ef8-d865-4394-b2ff-074421227bc8.jpg](https://raw.githubusercontent.com/hrabanazviking/Heathen-Third-Path-and-Cyber-Viking-Ethos/refs/heads/main/01f85ef8-d865-4394-b2ff-074421227bc8.jpg)
+
+---
 
 ### 25. The Altar and the Hearth
 
