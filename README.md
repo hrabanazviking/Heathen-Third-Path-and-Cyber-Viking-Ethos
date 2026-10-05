@@ -1,4 +1,3 @@
----
 
 ![https://raw.githubusercontent.com/hrabanazviking/Heathen-Third-Path-and-Cyber-Viking-Ethos/refs/heads/main/bd33fa2c-cb02-48b0-9391-75c3f2a017c4.png](https://raw.githubusercontent.com/hrabanazviking/Heathen-Third-Path-and-Cyber-Viking-Ethos/refs/heads/main/bd33fa2c-cb02-48b0-9391-75c3f2a017c4.png)
 
